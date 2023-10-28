@@ -6,7 +6,8 @@ https://petrigdrilling.blogspot.com
 Facebook Page 
 https://www.facebook.com/profile.php?id=61552647536788&mibextid=ZbWKwL
 
-Poster https://www.canva.com/design/DAFye701emY/V3dUkGye5jLkl7od0tqGQA/view?utm_content=DAFye701emY&utm_campaign=designshare&utm_medium=link&utm_source=editor
+Poster 
+https://www.linkedin.com/posts/elite-sports-emporium-281514298_victory-starts-here-activity-7124053695457062912-TYGZ?utm_source=share&utm_medium=member_android
 
 Email Newsletter https://www.canva.com/design/DAFx3gJNbYU/7ev8ULIbrBXheDaN9ht9DA/view?utm_content=DAFx3gJNbYU&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
