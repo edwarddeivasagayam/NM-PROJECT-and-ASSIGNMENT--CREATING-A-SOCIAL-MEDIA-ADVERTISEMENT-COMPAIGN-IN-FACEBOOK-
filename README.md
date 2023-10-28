@@ -54,8 +54,8 @@ https://www.linkedin.com/in/stride-style-976077299?utm_source=share&utm_campaign
 Email Newsletter
 https://www.canva.com/design/DAFxoX2NSrA/QwE7d7gsnVoL16iCdY2KcQ/view?utm_content=DAFxoX2NSrA&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
-PROJECT VIDEO DEMONSTRATION:https://drive.google.com/file/d/1dw7UnM36hEtdDnNx1GFfh_O3pHQ1Gnu_/view?usp=drive_link
+PROJECT VIDEO DEMONSTRATION-https://drive.google.com/file/d/1dw7UnM36hEtdDnNx1GFfh_O3pHQ1Gnu_/view?usp=drivesdk
 
-EMPATHY MAP:https://app.mural.co/invitation/mural/edward9391/1698465450603?sender=u69a82e87a004f71e598a7203&key=4e44b572-84a8-4254-a151-b7bfa1035b5f
+EMPATHY MAP-https://app.mural.co/invitation/mural/edward9391/1698465450603?sender=u69a82e87a004f71e598a7203&key=4e44b572-84a8-4254-a151-b7bfa1035b5f
 
 PROJECT LINK:https://www.facebook.com/profile.php?id=100069268976825&mibextid=ZbWKwL
