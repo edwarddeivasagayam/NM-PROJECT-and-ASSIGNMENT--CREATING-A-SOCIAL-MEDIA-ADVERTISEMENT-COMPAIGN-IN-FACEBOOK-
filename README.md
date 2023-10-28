@@ -35,7 +35,7 @@ Facebook page
  https://www.facebook.com/profile.php?id=61552646512019&mibextid=ZbWKwL
 
 Poster
- https://m.facebook.com/story.php?story_fbid=pfbid02R8E2hJsfdQ3JkBLg7kwin29KsUUMyTnfnb7F9xAZrvTqKyBMfiNRdshkdiXaLkc9l&id=61552646512019&mibextid=ZbWKwL
+https://www.linkedin.com/posts/blissfull-skin-b9077b298_natural-skin-always-wealth-but-our-activity-7124058294091972608-ohCu?utm_source=share&utm_medium=member_android
 
 Email Newsletter
  https://www.canva.com/design/DAFyeRqO-m0/BGRWdbDoqGqCdgpz8joMkQ/edit?utm_content=DAFyeRqO-m0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
