@@ -64,5 +64,7 @@ BRAIN STORM-https://drive.google.com/file/d/1-ELfc47-Rs215RL3RdmHUYS68bNTdyi-/vi
 
 PROJECT VIDEO DEMONSTRATION-https://drive.google.com/file/d/1dw7UnM36hEtdDnNx1GFfh_O3pHQ1Gnu_/view?usp=drivesdk
 
+PROJECT REPORT-https://drive.google.com/file/d/1-J9HUSAXVd6o2URnTsIGR11QLS9QFq4U/view?usp=drivesdk
+
 PROJECT LINK:https://www.facebook.com/profile.php?id=100069268976825&mibextid=ZbWKwL
 
