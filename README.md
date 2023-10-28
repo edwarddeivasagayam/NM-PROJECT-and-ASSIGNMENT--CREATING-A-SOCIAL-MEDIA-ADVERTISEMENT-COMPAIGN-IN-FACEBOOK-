@@ -21,7 +21,7 @@ Facebook page
 https://www.facebook.com/profile.php?id=61552718843037
 
 Social media Poster
-https://www.canva.com/design/DAFxoAAOTgk/DQrbbEIhVIORvzDMWESUvQ/edit?utm_content=DAFxoAAOTgk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.linkedin.com/in/dream-arts-jewellers-44a078299?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 Email Newsletter
 https://www.canva.com/design/DAFxuqfLEuk/xdnaK13sV3EgbgZL4Urw_A/edit?utm_content=DAFxuqfLEuk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
@@ -35,7 +35,7 @@ Facebook page
  https://www.facebook.com/profile.php?id=61552646512019&mibextid=ZbWKwL
 
 Social media Poster
-https://www.linkedin.com/posts/blissfull-skin-b9077b298_natural-skin-always-wealth-but-our-activity-7124058294091972608-ohCu?utm_source=share&utm_medium=member_android
+https://www.linkedin.com/in/blissfull-skin-b9077b298?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 Email Newsletter
  https://www.canva.com/design/DAFyeRqO-m0/BGRWdbDoqGqCdgpz8joMkQ/edit?utm_content=DAFyeRqO-m0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
