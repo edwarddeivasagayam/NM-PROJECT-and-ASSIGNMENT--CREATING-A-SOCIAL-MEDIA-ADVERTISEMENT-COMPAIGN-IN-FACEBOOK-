@@ -22,7 +22,7 @@ https://www.facebook.com/profile.php?id=61552718843037
 Poster
 https://www.canva.com/design/DAFxoAAOTgk/DQrbbEIhVIORvzDMWESUvQ/edit?utm_content=DAFxoAAOTgk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-Newsletter
+Email Newsletter
 https://www.canva.com/design/DAFxuqfLEuk/xdnaK13sV3EgbgZL4Urw_A/edit?utm_content=DAFxuqfLEuk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 DHINESH.P(NM ID-718602C24B78A29ADE447230EAFE9A1F)
@@ -47,8 +47,8 @@ https://drillingoperation.blogspot.com/2023/08/drilling-operations.html
 Facebook page 
 https://www.facebook.com/profile.php?id=61552578627992&mibextid=ZbWKwL
 
-Facebook post
+Poster
 https://www.canva.com/design/DAFxhnkqSG0/YB5mvibvDZYHC_spX2j6Mw/view?utm_content=DAFxhnkqSG0&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
-Newsletter
+Email Newsletter
 https://www.canva.com/design/DAFxoX2NSrA/QwE7d7gsnVoL16iCdY2KcQ/view?utm_content=DAFxoX2NSrA&utm_campaign=designshare&utm_medium=link&utm_source=editor
