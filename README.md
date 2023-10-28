@@ -28,7 +28,7 @@ https://www.canva.com/design/DAFxuqfLEuk/xdnaK13sV3EgbgZL4Urw_A/edit?utm_content
 DHINESH.P(NM ID-718602C24B78A29ADE447230EAFE9A1F)
 
 Blogs
- imprtance.blogspot.com
+ https://imprtance.blogspot.com
 
 Facebook page
  https://www.facebook.com/profile.php?id=61552646512019&mibextid=ZbWKwL
