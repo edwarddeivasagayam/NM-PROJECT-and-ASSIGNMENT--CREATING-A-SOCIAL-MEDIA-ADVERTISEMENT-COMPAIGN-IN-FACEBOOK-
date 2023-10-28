@@ -6,8 +6,8 @@ https://petrigdrilling.blogspot.com
 Facebook Page 
 https://www.facebook.com/profile.php?id=61552647536788&mibextid=ZbWKwL
 
-Poster 
-https://www.linkedin.com/posts/elite-sports-emporium-281514298_victory-starts-here-activity-7124053695457062912-TYGZ?utm_source=share&utm_medium=member_android
+Social media Poster 
+https://www.linkedin.com/in/elite-sports-emporium-281514298?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 Email Newsletter https://www.canva.com/design/DAFx3gJNbYU/7ev8ULIbrBXheDaN9ht9DA/view?utm_content=DAFx3gJNbYU&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
@@ -20,7 +20,7 @@ https://dha44nush777.blogspot.com/2023/08/engineering-ethics.html
 Facebook page
 https://www.facebook.com/profile.php?id=61552718843037
 
-Poster
+Social media Poster
 https://www.canva.com/design/DAFxoAAOTgk/DQrbbEIhVIORvzDMWESUvQ/edit?utm_content=DAFxoAAOTgk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 Email Newsletter
@@ -34,7 +34,7 @@ Blogs
 Facebook page
  https://www.facebook.com/profile.php?id=61552646512019&mibextid=ZbWKwL
 
-Poster
+Social media Poster
 https://www.linkedin.com/posts/blissfull-skin-b9077b298_natural-skin-always-wealth-but-our-activity-7124058294091972608-ohCu?utm_source=share&utm_medium=member_android
 
 Email Newsletter
@@ -48,8 +48,8 @@ https://drillingoperation.blogspot.com/2023/08/drilling-operations.html
 Facebook page 
 https://www.facebook.com/profile.php?id=61552578627992&mibextid=ZbWKwL
 
-Poster
-https://www.canva.com/design/DAFxhnkqSG0/YB5mvibvDZYHC_spX2j6Mw/view?utm_content=DAFxhnkqSG0&utm_campaign=designshare&utm_medium=link&utm_source=editor
+Social media Poster
+https://www.linkedin.com/in/stride-style-976077299?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 Email Newsletter
 https://www.canva.com/design/DAFxoX2NSrA/QwE7d7gsnVoL16iCdY2KcQ/view?utm_content=DAFxoX2NSrA&utm_campaign=designshare&utm_medium=link&utm_source=editor
